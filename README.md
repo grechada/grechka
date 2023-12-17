@@ -10,6 +10,6 @@
   
 ![domou](content://media/external/downloads/16717)
 ![domou](dom)
-[dom]:(content://media/external/downloads/16717)
+[dom]:content://media/external/downloads/16717
 
 
