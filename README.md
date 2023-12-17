@@ -9,5 +9,5 @@
 **4. Домой**
   
 ![domou](https://d.newsweek.com/en/full/253033/66-pg0323-putinjudo-01.jpg)
-[https://fikiwiki.com/uploads/posts/2022-02/1644843721_14-fikiwiki-com-p-kartinki-kodi-smailikov-vk-19.png]
+[https://fikiwiki.com/uploads/posts/2022-02/1644843721_14-fikiwiki-com-p-kartinki-kodi-smailikov-vk-19.png] 
 
