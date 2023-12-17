@@ -8,6 +8,6 @@
   
 **4. Домой**
   
-![domou]((https://d.newsweek.com/en/full/253033/66-pg0323-putinjudo-01.jpg)https://d.newsweek.com/en/full/253033/66-pg0323-putinjudo-01.jpg)
+![domou](https://d.newsweek.com/en/full/253033/66-pg0323-putinjudo-01.jpg)
 
 
